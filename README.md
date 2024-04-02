@@ -1,4 +1,4 @@
-# Shann / Programmer 🐞
+# Shann / 🐞
 
 Contact with me to: 
 - [Facebook] : 
